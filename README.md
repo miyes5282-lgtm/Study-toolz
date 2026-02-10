@@ -1,2 +1,2 @@
-# Study-toolz-
+# Study-toolz
 :p
